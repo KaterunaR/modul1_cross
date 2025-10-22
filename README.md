@@ -1,1 +1,0 @@
-# modul1_cross
